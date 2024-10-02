@@ -2,9 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="![download20240901114319](https://github.com/user-attachments/assets/13353019-bb35-4ba9-8374-44a2f103e6e6)
-
-"  />
+<img align="right" height="150" src="![download20240901114319](https://github.com/user-attachments/assets/13353019-bb35-4ba9-8374-44a2f103e6e6)"  />
 
 ###
 
